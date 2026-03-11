@@ -26,4 +26,4 @@ Currently looking for **full stack or software engineering roles**.
 
 ---
 
-📫 **[LinkedIn](https://linkedin.com/in/yourhandle)** · **[Portfolio](https://seung0708.github.io)** · **[Resume](https://your-resume-link)**
+📫 **[LinkedIn](https://linkedin.com/in/seung0708)**
